@@ -11,4 +11,4 @@ $\texttt{\color{#B6AB4F}" Tell me how it is ! "}$
 
 $\texttt{\color{#B6AB4F}opera ☆ andromeda‎}$\
 $\texttt{\color{#ffffff}. . . she / it  !  aroflux sapphic}$\
-$\texttt{\color{#ffffff}19 &͟&͟ feb 9th}$
+$\texttt{\color{#ffffff}19 &͟ feb 9th}$
